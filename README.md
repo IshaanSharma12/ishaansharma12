@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...Technology 
-- 📫 How to reach me: ...Insta and FB.
+- 📫 How to reach me: ...Insta Linkedin, Find me exploring Beautiful British Columbia
 - 😄 Pronouns: ...Mr , Sir , 
 - ⚡ Fun fact: ...I love programming.
 -->
